@@ -8,6 +8,10 @@ selam arkadaslar bazi kisiler varmis kendisini botcu sanan gülesim geldi .d
 ![image](https://github.com/realchavoo/capoxl/assets/133610412/5f860eff-026c-4c07-859d-fb499cbbf6cd)
 ![image](https://github.com/realchavoo/capoxl/assets/133610412/d3022201-068f-46e9-8c57-916e8a6e46cf)
 
+![image](https://github.com/realchavoo/capoxl/assets/133610412/47b3ff9e-db48-41e1-8fe7-4a9fd1eea961)
+aslan kardesim papaz
+
+
 
 
 
